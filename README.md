@@ -1,2 +1,0 @@
-# entriopia
-actividad entriopia
